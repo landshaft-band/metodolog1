@@ -1,0 +1,2 @@
+# metodolog1
+ 
